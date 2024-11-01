@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @shresthjindal28<br>👀 I’m interested in making new projects <br>🌱 I’m currently learning Web development<br>💞️ I’m looking to collaborate on open Source Projects<br>📫 How to reach me : linkedIn or X<br>😄 Pronouns: he/him<br>⚡ Fun fact:  fast-paced and challenging career, centered on creative problem-solving and continuous innovation
+👋 Hi, I’m shresth jindal<br>👀 I’m interested in making new projects <br>🌱 I’m currently learning Web development<br>💞️ I’m looking to collaborate on open Source Projects<br>📫 How to reach me : linkedIn or X<br>😄 Pronouns: he/him<br>⚡ Fun fact:  fast-paced and challenging career, centered on creative problem-solving and continuous innovation
 
 
 ## 🌐 Socials:
